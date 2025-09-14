@@ -28,9 +28,9 @@
 ---
 
 
-[![🎰 Попробовать Le Zeus](https://k56thc2itt.com/?serial=36018&creative_id=1246&anid=SENTINO&path=registration&retentionId=a8aecea0-2dac-41a0-82ca-59e0cf53f33f&utm_source=russia&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SENTINO)
-[![🎲 Проект номер #2](https://k56thc2itt.com/?serial=47116&creative_id=1286&anid=SENTINO&path=registration&retentionId=6ea75dae-5fbe-4550-b662-b83e4600a165&utm_source=russia&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SENTINO)
-[![📊 Проект номер #3](https://k56thc2itt.com/?serial=47117&creative_id=1288&anid=SENTINO&path=registration&retentionId=fd9d3881-a949-47f0-9752-99fc8d620f27&utm_source=russia&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SENTINO)
+[Попробовать Le Zeus](https://k56thc2itt.com/?serial=36018&creative_id=1246&anid=SENTINO&path=registration&retentionId=a8aecea0-2dac-41a0-82ca-59e0cf53f33f&utm_source=russia&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SENTINO)
+[Проект номер #2](https://k56thc2itt.com/?serial=47116&creative_id=1286&anid=SENTINO&path=registration&retentionId=6ea75dae-5fbe-4550-b662-b83e4600a165&utm_source=russia&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SENTINO)
+[Проект номер #3](https://k56thc2itt.com/?serial=47117&creative_id=1288&anid=SENTINO&path=registration&retentionId=fd9d3881-a949-47f0-9752-99fc8d620f27&utm_source=russia&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SENTINO)
 
 ---
 
